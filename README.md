@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @mrnobody700
 - 👀 I’m interested in .cryptoooooooo..
 - 🌱 I’m currently learning ..defiiiiiiii.
+- fall in love with an amazing wife.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
