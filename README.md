@@ -4,7 +4,7 @@
 - mrnobody700@gmail.com
 - fall in love with an amazing wife.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 youcan find me in the evms and in the internet but my telegram account is mynobody700
 
 <!---
 mrnobody700/mrnobody700 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
